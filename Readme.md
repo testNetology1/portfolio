@@ -10,3 +10,4 @@
 
 Наслаждаюсь каждым днем в своей жизни.
 
+![image](https://user-images.githubusercontent.com/120127080/208733340-56d207c8-283d-4405-9369-0b5e71eaef8d.png)
